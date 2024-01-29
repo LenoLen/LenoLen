@@ -1,4 +1,4 @@
-![image](https://github.com/LenoLen/LenoLen/assets/155751119/0b747a3a-29b5-4ce7-9d60-fe0d77062f65)
+![image](https://github.com/LenoLen/LenoLen/assets/155751119/214d426b-bf44-4559-a546-89cadb484095)
 
 oops.
 ***

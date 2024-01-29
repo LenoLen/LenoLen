@@ -20,7 +20,7 @@ i dont mind any kind of jokes, joke about getting me pregnant i literally dont c
 ***
 dnis are sstupid but i guess
 
--Poser okegom fans (people who claim to like okegom but dont like "icky stuff")
+-Poser okegom fans (people who claim to like okegom but dont like "icky stuff") (literally just okegom fans who claim to be antis.)
 
 - below 14 (13 thin ice)
 

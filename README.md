@@ -12,3 +12,4 @@ c+h: oki
 
 ships: ABSULUTELY (including darkships) (keep in mind im taken irl though)
 
+i dont mind any kind of jokes, joke about getting me pregnant i literally dont care.

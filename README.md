@@ -18,4 +18,4 @@ ships: ABSULUTELY (including darkships(i literally made the wadda pony to cospla
 
 i dont mind any kind of jokes, joke about getting me pregnant i literally dont care.
 ***
-Antiship okegom fans avoid interacting how can you be an anti, and like okegom. i dont like yall. 
+Antiship okegom fans avoid interacting how can you be an anti, and like okegom. i dont like yall. posers :/

@@ -18,10 +18,4 @@ ships: ABSULUTELY (including darkships(i literally made the wadda pony to cospla
 
 i dont mind any kind of jokes, joke about getting me pregnant i literally dont care.
 ***
-dnis are sstupid but i guess
-
--Poser okegom fans (people who claim to like okegom but dont like "icky stuff") (literally just okegom fans who claim to be antis.)
-
-- below 14 (13 thin ice)
-
-- antishippers, its for your own good. im the freak in your dni.
+Anti okegom fans avoid interacting how can you be an anti, and like okegom. i dont like yall. 

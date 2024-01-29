@@ -9,6 +9,8 @@ if you know how to make my ponies loook better im begging you give me tips.
 im anti-harrasment towards ships (including immoral ones) so if that angers you hide me i cant be bothered to argue
 
 i have the slowest internet known to mankind so dont mind me not replying to you i prrobalby just didnt saw
+
+i sometimes get in character as a joke.
 ***
 boundaries:
 

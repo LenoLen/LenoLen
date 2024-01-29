@@ -17,3 +17,11 @@ c+h: oki
 ships: ABSULUTELY (including darkships(i literally made the wadda pony to cosplay sal x wadda with my bf so)) (keep in mind im taken irl though)
 
 i dont mind any kind of jokes, joke about getting me pregnant i literally dont care.
+***
+dnis are sstupid but i guess
+
+-Poser okegom fans (people who claim to like okegom but dont like "icky stuff")
+
+- below 14 (13 thin ice)
+
+- antishippers, its for your own good. im the freak in your dni.

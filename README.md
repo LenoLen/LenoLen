@@ -3,6 +3,8 @@
 oops.
 ***
 if you know how to make my ponies loook better im begging you give me tips. 
+
+if you wanna crown me please do that in whispers cause im offtab alot of the time and i want to see people like me 
 ***
 ![4wbjvJX](https://github.com/LenoLen/LenoLen/assets/155751119/95e7b2c4-d218-4919-8c74-2a73e3576b48)im Len but you can call me by whatever pony im cosplaying!
 

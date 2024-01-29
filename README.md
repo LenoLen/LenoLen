@@ -7,6 +7,8 @@ oops.
 ![4wbjvJX](https://github.com/LenoLen/LenoLen/assets/155751119/95e7b2c4-d218-4919-8c74-2a73e3576b48)im Len but you can call me by whatever pony im cosplaying!
 
 im anti-harrasment towards ships (including immoral ones) so if that angers you hide me i cant be bothered to argue
+
+i have the slowest internet known to mankind so dont mind me not replying to you i prrobalby just didnt saw
 ***
 boundaries:
 

@@ -10,9 +10,11 @@ if you wanna crown me please do that in whispers cause im offtab alot of the tim
 
 im anti-harrasment towards  fictional ships (including immoral ones) so if that angers you hide me i cant be bothered to argue
 
+im also pro self-diagnosis. cope with it iguess
+
 i have the slowest internet known to mankind so dont mind me not replying to you i prrobalby just didnt saw
 
-i sometimes get in character as a joke.
+i sometimes get in character im cosplaying as a joke.
 ***
 boundaries:
 

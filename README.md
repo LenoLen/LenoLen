@@ -25,3 +25,5 @@ ships: ABSULUTELY (including darkships(i literally made the wadda pony to cospla
 i dont mind any kind of jokes, joke about getting me pregnant i literally dont care. im not the type of guy who sees "im gonna touch you" messenge and start breaking down crying cause its "normalizing" or some shit
 ***
 Antiship okegom fans avoid interacting how can you be an anti, and like okegom. i dont like yall. posers :/
+***
+goonersquad ily

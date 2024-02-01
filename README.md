@@ -17,4 +17,5 @@ on that note, im okay with bassicaly all stuff, c+h? sure, ship interactions? ok
 #goonersquad4life
 
 ![VOCALOID 600 1374791](https://github.com/LenoLen/LenoLen/assets/155751119/31375396-d8f0-452c-9c41-ff5d07edb305)
+
 art by: Yosiki

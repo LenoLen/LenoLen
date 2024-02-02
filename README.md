@@ -12,7 +12,7 @@ main cosplays:
 ***
 no dni, if i dont like you i will kill you.
 
-on that note, im okay with bassicaly all stuff, c+h? sure, ship interactions? okk, joking about doing unspeakable things to me? i dont mind.
+on that note, im okay with bassicaly all stuff, c+h? sure, ship interactions? okk, joking about doing unspeakable things to me? i dont mind. (same as Nero, if you think proship means problematic ship you will be boiled.)
 ***
 #goonersquad4life
 

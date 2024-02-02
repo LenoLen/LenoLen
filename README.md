@@ -10,7 +10,7 @@ main cosplays:
 - **wadanohara**
 - mary kozakura
 ***
-im mainly offtab, or hanging out with my friends, orcliking on random githubs to send to my friends as bingo boards 
+im mainly offtab, or hanging out with my friends, or clikcing on random githubs/patreons to do the dni's like a bingo
 ***
 no dni, if i dont like you i will kill you.
 

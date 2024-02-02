@@ -3,7 +3,7 @@
 ![image](https://github.com/LenoLen/LenoLen/assets/155751119/214d426b-bf44-4559-a546-89cadb484095)
 ***
 My Name is Len.(you can also call me by the name of character im cosplaying, i dont mind)
-Im profiction, proship, pro-self-dx, propara(anti contact, pro recovery) and all those other things what ponytown players are mad about
+Im profiction, proship (https://define-proship.carrd.co) , pro-self-dx, propara(anti contact, pro recovery) and all those other things what ponytown players are mad about
 ***
 main cosplays:
 - kagamine Len (my source)
